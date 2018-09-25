@@ -13,5 +13,6 @@ Assuming you have the basics for an alpine hike (proper clothes, water, food), s
 # How to Prepare 
 Most importantly, prepare for the altitude. If you’re coming from the Front Range, you will likely be fine but spending at least a day up in Estes Park would be beneficial. If coming from further away, adjust longer. 
 
-Consider hiking another fourteener if you haven’t already. Going up Longs via the Keyhole route is a good way to familiarize yourself with the mountain before you rope up onto it. 
+Consider hiking another fourteener if you haven’t already. Going up Longs via the Keyhole route is a good way to familiarize yourself with the mountain before you rope up onto it. Having a climbing background is not required, though recommended. Being physically capable and willing to make it up two pitches rated at Class III will likely be enough to get you there. 
+
 
