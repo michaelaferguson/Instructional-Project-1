@@ -38,3 +38,7 @@ You’ll see an outcropping that overlooks the East face, appropriately called C
 >![Chasm View](https://github.com/michaelaferguson/instructional-project-/blob/master/IMG_0653.jpg)
 Chasm Lake 
 
+Press on to the base of the climb - look for the route that lies between two distinct gulleys in the rock.
+
+## Roping Up
+The climb can be done in two pitches, but one is preferable. Rope up and tie in
