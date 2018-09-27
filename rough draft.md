@@ -46,6 +46,6 @@ The climb can be done in two pitches, but one is preferable. Rope up and tie in 
 <img src="https://github.com/michaelaferguson/instructional-project-/blob/master/IMG_0657.jpg" width="425"/> <img src="https://github.com/michaelaferguson/instructional-project-/blob/master/IMG_0730.jpg" width="425"/> 
 
 You’ll have about 140’ of rock to climb, with an option for a second pitch right in the middle to split it up if need be. The first 40’ feet are full of good hand and feet holds. There will be an awkward maneuver in here (depending on how long your limbs are) to get onto the next ledge. Use this space to rest or regroup before starting on the next 70’. 
-The second half is a bit easier, make sure to utilize your feet and use small cams. If you’ve made it to this point, you should not be afraid of heights, so use this opportunity to absolutely *look down!* 
+The second half is a bit easier, make sure to utilize your feet and use small cams. If you’ve made it to this point, I'd hope you're not afraid of heights, so use this opportunity to *look down!* 
 
-<img src="https://github.com/michaelaferguson/instructional-project-/blob/master/IMG_0659.jpg" width="450"/> 
+<img src="https://github.com/michaelaferguson/instructional-project-/blob/master/IMG_0659.jpg" width="470"/> 
