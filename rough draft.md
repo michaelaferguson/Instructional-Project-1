@@ -69,4 +69,4 @@ Eat a delicious celebratory meal (I'd recommend Penelope's Burgers or Nepal's).
 ***
 >**Q:** Why is it called the Cable's Route?
 >
->**A:** The history of this route is fascinating! From 1925 to 1973, there were steel cables installed to provide easy access for people. More information can be found [here](https://coloradoencyclopedia.org/article/longs-peak)
+>**A:** The history of this route is fascinating! From 1925 to 1973, there were steel cables installed to provide easy access for people. More information can be found [here.](https://coloradoencyclopedia.org/article/longs-peak)
