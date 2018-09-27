@@ -6,7 +6,7 @@ The highest mountain in Northern Colorado, Longs Peak, stands 14,259 feet high a
 Assuming you have the basics for an alpine hike (proper clothes, water, food), some additional items you will need for this route are:
 •	Preferably approach shoes; a mix between a hiking boot and a lighter climbing shoe. 
 •	A light alpine rack.
-•	Harness.
+•	Harness and helmet.
 •	One 60/70m rope - if going in a larger group, bring two!
 •	C4 cams.
 •	Time! Allot for 8-14 hours.
@@ -52,4 +52,9 @@ Here's the view of the scramble just above the face of the Diamond:
 ## Descending
 The most fun lies in the repel down. Your knees get a break from descending the big boulders, and it's just plain fun!
 Your single 60mm will be enough, but we doubled up and repelled beyond the original starting ledge to get us as far down as we could to save a little time. 
-><img src="https://github.com/michaelaferguson/instructional-project-/blob/master/IMG_0733.jpg" width="500"/> 
+><img src="https://github.com/michaelaferguson/instructional-project-/blob/master/IMG_0733.jpg" width="550"/> 
+
+Since the hike down requires careful manuevering over the boulders, and a rocky trail thereafter, it will likely take the same amount of time to get down as it did up. Enjoy all the sights you couldn't see on the way up and chug, chug, **chug** water!
+Eat a delicious celebratory meal (I'd recommend Penelope's Burgers or Nepal's). 
+***
+# FAQ's
