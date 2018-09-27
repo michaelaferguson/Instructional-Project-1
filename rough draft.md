@@ -48,3 +48,8 @@ Once you've made it to the belay bolt ledge, follow the ridge to the left and he
 
 Here's the view of the scramble just above the face of the Diamond:
 ><img src="https://github.com/michaelaferguson/instructional-project-/blob/master/IMG_0665.jpg" width="500"/> 
+
+## Descending
+The most fun lies in the repel down. Your knees get a break from descending the big boulders, and it's just plain fun!
+Your single 60mm will be enough, but we doubled up and repelled beyond the original starting ledge to get us as far down as we could to save a little time. 
+><img src="https://github.com/michaelaferguson/instructional-project-/blob/master/IMG_0733.jpg" width="500"/> 
