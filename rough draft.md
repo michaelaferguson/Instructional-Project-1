@@ -31,6 +31,6 @@ The first half of the hike is just gaining mileage and altitude. You will turn a
 
 ## Rock-Hopping 
 Here’s where the real fun begins. As you start rock-hopping while approaching the big, bad Boulderfield, you get to take the path less traveled. Most everyone that has made it this far will likely head straight for the Keyhole, but you’ll veer left towards Longs’s North face. Plan to slow down significantly as you trek over some massive boulders. You’ll see an outcropping that overlooks the East face, appropriately called Chasm View. Aim for this and (cautiously) enjoy the view .
-![Chasm View](https://github.com/michaelaferguson/instructional-project-/blob/master/IMG_0653.jpg)
+>![Chasm View](https://github.com/michaelaferguson/instructional-project-/blob/master/IMG_0653.jpg)
 
 
