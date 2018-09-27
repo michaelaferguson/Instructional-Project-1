@@ -41,5 +41,5 @@ You’ll see an outcropping that overlooks the East face, appropriately called C
 Press on to the base of the climb - look for the route that lies between two distinct gulleys in the rock.
 
 ## Roping Up
-The climb can be done in two pitches, but one is preferable. Rope up and tie in
-<img src="https://github.com/michaelaferguson/instructional-project-/blob/master/IMG_0657.jpg" width="425"/> <img src="https://github.com/michaelaferguson/instructional-project-/blob/master/IMG_0659.jpg" width="425"/> 
+The climb can be done in two pitches, but one is preferable. Rope up and tie in to the visible (and historical!) eyebolt. 
+<img src="https://github.com/michaelaferguson/instructional-project-/blob/master/IMG_0657.jpg" width="425"/> <img src="https://github.com/michaelaferguson/instructional-project-/blob/master/IMG_0730.jpg" width="425"/> 
