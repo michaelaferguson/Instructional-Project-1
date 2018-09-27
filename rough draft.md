@@ -23,6 +23,7 @@ The most important element to prepare for is the altitude. If you’re coming fr
 Consider hiking another fourteener if you haven’t already. Going up Longs via the Keyhole route is a good way to familiarize yourself with the mountain before you rope up onto it. Having a climbing background is not required, though recommended. Being physically capable and willing to make it up two pitches rated at Class III will likely be enough to get you there. 
 
 # The Climb
+***
 ## Starting Off
 Since this is a 16+ mile hike, you’ll want to start early. To have an estimate of total time needed on the trail, take your pace times the sixteen miles, multiply by two, then add two more hours on for good measure. You should leave somewhere between one and four in the morning in order to get back down before afternoon storms. 
 
