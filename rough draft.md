@@ -1,6 +1,6 @@
 # Longs Peak via the Old Cable's Route 
 ***
-The highest mountain in Northern Colorado, Longs Peak, stands 14,259 feet high and sits inside of Rocky Mountain National Park. This mountain draws people from around the world to hike, climb, and summit its peak. If you have already been up on any part of this mountain, ie. Chasm Lake at the base of the East face, to its neighboring peaks, or even summited it via the Keyhole route and want to take the next step in approaching this mountain, the Old Cable’s Route might be right for you. This guide will provide details on when to go, what you need, how to prepare, and the logistics of the climb itself.
+The highest mountain in Northern Colorado, Longs Peak, stands 14,259 feet high and sits inside of Rocky Mountain National Park. This mountain draws people from around the world to hike, climb, and summit its peak. If you have already been up on any part of this mountain, ie. Chasm Lake at the base of the East face, to its neighboring peaks, or even summited it via the Keyhole route and want to take the next step in approaching this mountain, climbing the Old Cable’s Route on the North face might be right for you. This guide will provide details on when to go, what you need, how to prepare, and the logistics of the climb itself.
 
 # What You Need 
 Assuming you have the basics for an alpine hike (proper clothes, water, food), some additional items you will need for this route are:
