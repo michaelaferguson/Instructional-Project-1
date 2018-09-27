@@ -60,10 +60,13 @@ Eat a delicious celebratory meal (I'd recommend Penelope's Burgers or Nepal's).
 ***
 # FAQ's
 >**Q:** When can this route be climbed?
+>
 >**A:** People will make the attempt year-round, but June-September is ideal.
 >
 >**Q:** Can I do this if I don't have much climbing experience?
+>
 >**A:** Likely, yes! Try to go with someone who kind of knows what they're doing.
 >
 >**Q:** Why is it called the Cable's Route?
->**A:** The history of this route is fascinating! From 1925 to 1973, there were steel cables installed to provide easy access for people. More information can be found [here:](https://coloradoencyclopedia.org/article/longs-peak)
+>
+>**A:** The history of this route is fascinating! From 1925 to 1973, there were steel cables installed to provide easy access for people. More information can be found [here](https://coloradoencyclopedia.org/article/longs-peak)
