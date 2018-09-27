@@ -4,17 +4,11 @@ The highest mountain in Northern Colorado, Longs Peak, stands 14,259 feet high a
 
 # What You Need 
 Assuming you have the basics for an alpine hike (proper clothes, water, food), some additional items you will need for this route are:
-
 •	Preferably approach shoes; a mix between a hiking boot and a lighter climbing shoe. 
-
 •	A light alpine rack.
-
 •	Harness.
-
 •	One 60/70m rope - if going in a larger group, bring two!
-
 •	C4 cams.
-
 •	Time! Allot for 8-14 hours.
 
 # How to Prepare 
@@ -53,4 +47,4 @@ The second half is a bit easier, make sure to utilize your feet and use small ca
 Once you've made it to the belay bolt ledge, follow the ridge to the left and help/wait for your crew to get up. The final ascent to the summit requires some class III scrambling, with a variety of cairns to follow. If you've ever made the trudge up The Trough on the West side, this scramble will feel luxurious in comparison! Summit and congratulate yourself! Enjoy the view, refuel, take a nap, but be mindful of time. The descent will still take some time. 
 
 Here's the view of the scramble just above the face of the Diamond:
-><img src="https://github.com/michaelaferguson/instructional-project-/blob/master/IMG_0665.jpg" width="470"/> 
+><img src="https://github.com/michaelaferguson/instructional-project-/blob/master/IMG_0665.jpg" width="500"/> 
