@@ -43,9 +43,14 @@ Press on to the base of the climb - look for the route that lies between two dis
 ## Roping Up
 The climb can be done in two pitches, but one is preferable. Rope up and tie in to the visible (and historical!) eyebolt. 
 
-><img src="https://github.com/michaelaferguson/instructional-project-/blob/master/IMG_0657.jpg" width="425"/> <img src="https://github.com/michaelaferguson/instructional-project-/blob/master/IMG_0730.jpg" width="425"/> 
+<img src="https://github.com/michaelaferguson/instructional-project-/blob/master/IMG_0657.jpg" width="425"/> <img src="https://github.com/michaelaferguson/instructional-project-/blob/master/IMG_0730.jpg" width="425"/> 
 
-You’ll have about 140’ of rock to climb, with an option for a second pitch right in the middle to split it up if need be. The first 40’ feet are full of good hand and feet holds. There will be an awkward maneuver in here (depending on how long your limbs are) to get onto the next ledge. Use this space to rest or regroup before starting on the next 70’. 
+You’ll have about 140’ of rock to climb, with an option for a second pitch right in the middle to split it up if need be. The whole route is rated at an *"easy"* 5.4. The first 40’ feet are full of good hand and feet holds. There will be an awkward maneuver in here (depending on how long your limbs are) to get onto the next ledge. Use this space to rest or regroup before starting on the next 70’. 
 The second half is a bit easier, make sure to utilize your feet and use small cams. If you’ve made it to this point, I'd hope you're not afraid of heights, so use this opportunity to *look down!* 
 
 ><img src="https://github.com/michaelaferguson/instructional-project-/blob/master/IMG_0659.jpg" width="470"/> 
+
+Once you've made it to the belay bolt ledge, follow the ridge to the left and help/wait for your crew to get up. The final ascent to the summit requires some class III scrambling, with a variety of cairns to follow. If you've ever made the trudge up The Trough on the West side, this scramble will feel luxurious in comparison! Summit and congratulate yourself! Enjoy the view, refuel, take a nap, but be mindful of time. The descent will still take some time. 
+
+Here's the view of the scramble just above the face of the Diamond:
+><img src="https://github.com/michaelaferguson/instructional-project-/blob/master/IMG_0665.jpg" width="470"/> 
