@@ -4,12 +4,13 @@ The highest mountain in Northern Colorado, Longs Peak, stands 14,259 feet high a
 
 # What You Need 
 Assuming you have the basics for an alpine hike (proper clothes, water, food), some additional items you will need for this route are:
-•	Preferably approach shoes; a mix between a hiking boot and a lighter climbing shoe. 
-•	A light alpine rack.
-•	Harness and helmet.
-•	One 60/70m rope - if going in a larger group, bring two!
-•	C4 cams.
-•	Time! Allot for 8-14 hours.
+
+-Preferably approach shoes; a mix between a hiking boot and a lighter climbing shoe. 
+-A light alpine rack.
+-Harness and helmet.
+-One 60/70m rope - if going in a larger group, bring two!
+-C4 cams.
+-Time! Allot for 8-14 hours.
 
 # How to Prepare 
 The most important element to prepare for is the altitude. If you’re coming from the Front Range, you will likely be fine but spending at least a day up in Estes Park would be beneficial. If coming from further away, adjust longer. 
